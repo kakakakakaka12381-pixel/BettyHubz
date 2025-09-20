@@ -1,2 +1,0 @@
-# BettyHubz
-steal a brainrot
